@@ -1,6 +1,6 @@
 
   
-  ## Hiiii, I´m Guwstavo lol 👋
+  ## lol 👋
 <div align="center">
   
 ![image](https://github.com/user-attachments/assets/f780485b-2536-4932-807e-96287588d70a)
